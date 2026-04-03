@@ -2,7 +2,7 @@ Friday on awakening...
 
 Woke up wanting more sleep.
 
-Immediately asked God, "Please direct my thinking. Let my thoughts be divorced from self-pity, dishonest or self-seeking motives, that I might have a contemplative mind."(p.86)
+Immediately asked God, "Please direct my thinking. Let my thoughts be divorced from self-pity, dishonest or self-seeking motives, that I might have a more contemplative mind."(p.86)
 
 "Show me the way of patience, tolerance, kindliness and love."(p.83)
 
@@ -47,6 +47,6 @@ Going to get ready and go to the gym before work.
 
 Top of Texas for chip night.
 
-Attending Sober AF
+Attending Sober AF.
 
 Have a great day! (Unless you have other plans)
