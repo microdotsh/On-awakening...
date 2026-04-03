@@ -47,6 +47,6 @@ Going to get ready and go to the gym before work.
 
 Top of Texas for chip night.
 
-Attending Sober AF 6031231489 - 22:30 (10:30pm) CST - https://us06web.zoom.us/j/6031231489
+Attending Sober AF
 
 Have a great day! (Unless you have other plans)
